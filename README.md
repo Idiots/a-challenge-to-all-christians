@@ -2,7 +2,7 @@
 
 A Challenge yes, but in a good way!!
 
-- This online book is designed to make you think.
+This online book is designed to make you think.
 
 It's offered as a way to get free of beliefs that you were taught were right, before you were old enough to decide for yourself.
 
@@ -14,4 +14,4 @@ We offer this book humbly, to help you think for yourself, and find God if you a
 
 If you think what you believe froms from the Bible, read this book and you just might be surprised!
 
-# Yahveh Yireh - Freely Give
+Yahveh Yireh - Freely Give
